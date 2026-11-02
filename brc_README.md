@@ -1,6 +1,6 @@
 ## Jenelys Ruiz Ortiz
 
-<img src="https://github.com/user-attachments/assets/9903a6ad-f60e-4f37-bfc7-099097848025" alt="Jenelys Ruiz graduate" width="200"/>
+<img width="2048" height="1365" alt="e534e006-7956-4b7c-bbe9-d2e11e5d3c28" src="https://github.com/user-attachments/assets/2daba4fb-3848-43cf-b55b-1d779924e7a3" />
 
 
 ### Background
