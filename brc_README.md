@@ -1,6 +1,6 @@
 ## Jenelys Ruiz Ortiz
 
-<img width="600" alt="e534e006-7956-4b7c-bbe9-d2e11e5d3c28" src="https://github.com/user-attachments/assets/2daba4fb-3848-43cf-b55b-1d779924e7a3" />
+<img width="400" alt="e534e006-7956-4b7c-bbe9-d2e11e5d3c28" src="https://github.com/user-attachments/assets/2daba4fb-3848-43cf-b55b-1d779924e7a3" />
 
 
 ### Background
